@@ -1,5 +1,5 @@
-# Telegram-Fake-Group-Converser
-A tool to make fake conserve and talks on Telegram groups
+# Telegram-Multi-Groups-Message-Sender
+A tool to send message to your target Telegram groups
 
 Contact with me to get the Password of Zip file on :
 
