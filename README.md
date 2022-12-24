@@ -5,7 +5,7 @@ Purchase it on my website : https://erfan4lx.com/product/telegram-multi-groups-m
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx1
+ Telegram : https://t.me/erfan4lx
   
  Email : erfan4lx@gmail.com
   
@@ -13,9 +13,9 @@ Contact with me to get the Password of Zip file on :
 
 Show demo video on Instagram : https://www.instagram.com/p/CPTrTKmlD1q/
 
-🆔My YouTube Channel : http://youtube.com/erfan4lx
+🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/Erfan4lxTeam1
+🆔My Telegram Channel : https://t.me/erfan4lx_channel
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
