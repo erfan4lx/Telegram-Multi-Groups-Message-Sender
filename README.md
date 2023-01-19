@@ -1,7 +1,9 @@
 # Telegram-Multi-Groups-Message-Sender
+LATEST VERSION : https://github.com/erfan4lx/Telegram-Group-Shilling
+
 A tool to send message to your target Telegram groups
 
-Purchase it on my website : https://erfan4lx.com/product/telegram-multi-groups-message-sender
+ MY OFFICIAL WEBSITE : https://erfan4lx.com
 
 Contact with me to get the Password of Zip file on :
 
@@ -18,8 +20,6 @@ Show demo video on Instagram : https://www.instagram.com/p/CPTrTKmlD1q/
 🆔My Telegram Channel : https://t.me/erfan4lx_channel
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
-
- MY OFFICIAL WEBSITE : https://erfan4lx.com
 
 <p align="center">
   Follow Me On
